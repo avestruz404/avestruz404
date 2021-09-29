@@ -7,7 +7,7 @@
   - not anything at the moment, because I'm not good at this type of stuff (maybe if we're friends irl, then I could try to collab but)
 - 📫 How to reach me ... 
   - *um, please no spam and state how you found me or else I'll block you or not reply but:
-    - Discord message me @ avestruz #
+    - Discord message me @ avestruz #0746
     - Twitch whisper me @avestruz404
       - no, I do not stream, I just watch people stream Brawl Stars heh heh
     - email notanerdorgamer@gmail.com
