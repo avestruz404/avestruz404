@@ -12,6 +12,7 @@
       - no, I do not stream, I just watch people stream Brawl Stars heh heh
     - email notanerdorgamer@gmail.com
       - I don't check this very much, and sorry yes it's cringey 
+    - Twitter @avestruz404
 - Have fun reading my stuff! :D
 
 <!---
